@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @moneyprintergobrrr
 - 👀 I’m interested in printing money
-- 🌱 I’m currently learning hot to print money faster
+- 🌱 I’m currently learning how to print money faster
 - 💞️ I’m looking to collaborate on printing even more money
 - 📫 How to reach me ... money will reach you!
 
